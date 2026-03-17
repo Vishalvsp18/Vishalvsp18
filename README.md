@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Vishalvsp18
-- 👀 I’m interested in Crime stories, Problem solving & Fashion 
-- 🌱 I’m currently learning Forensic science from LPU 
+- 👀 I’m interested in Crime stories, Problem solving.
+- 🌱 I’m currently Forensic science from LPU 
 - 📫 How to reach me via whatsapp 9030363829
 
 <!---
